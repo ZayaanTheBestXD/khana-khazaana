@@ -1,0 +1,1 @@
+A souffle is a baked egg-based dish originating in France in the early eighteenth century. Combined with various other ingredients it can be served as a savory main dish or sweetened as a dessert.
